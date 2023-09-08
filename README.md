@@ -3,8 +3,7 @@
 **25 ans  
 79 rue Roger François Lotte,  
 88500 Mirecourt  
-0673368581  
-tayfun88500@gmail.com**
+0673368581**
 
 ## **Développeur Web** 
 
