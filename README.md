@@ -1,9 +1,6 @@
 # **Tayfun GUGLU**
 
-**25 ans  
-79 rue Roger François Lotte,  
-88500 Mirecourt  
-0673368581**
+**25 ans, 79 rue Roger François Lotte, 88500 Mirecourt, 0673368581**
 
 ## **Développeur Web** 
 
